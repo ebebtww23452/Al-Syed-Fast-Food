@@ -1,1 +1,0 @@
-# Al-Syed-Fast-Food
